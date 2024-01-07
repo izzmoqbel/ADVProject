@@ -1,0 +1,1 @@
+Everything is fine but there is a break in individual responsibility
